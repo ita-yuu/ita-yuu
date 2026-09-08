@@ -5,8 +5,8 @@
 ```—⟢ . Basic Dni , 14- , radqueers```
 
 ‧˚꒰🐾꒱༘⋆  ㅤ𖹭ㅤ ![Image Alt Text](https://cdn.discordapp.com/attachments/1405615497583661119/1546704766447386694/nukoPeekWave.gif?ex=6aa0c090&is=6a9f6f10&hm=fd35edf0a0247f622eae47dffcc13db8bc8098a5c937b865a15ed9a0c252a78e&)   ㅤ𖹭 ㅤ⸝⸝ ₊˚⊹ 
-
 # ‿‿‿‿‿‿‿‿‿‿‿‿
+
 
 ᯓᡣ𐭩ㅤ ![Image Alt Text](https://cdn.discordapp.com/attachments/1405615497583661119/1546704767693234286/nukoFallDomino.gif?ex=6aa0c091&is=6a9f6f11&hm=57bffc474a20192ff354f54e1d495f825cd8fba5332d46acbf66ce69570bb52a&)
 
