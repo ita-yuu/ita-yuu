@@ -1,16 +1,20 @@
-## Hi there 👋
+ᯓ★ ![Image Alt Text](https://cdn.discordapp.com/attachments/1405615497583661119/1546705033138151524/nukoHeartLine.gif?ex=6aa0c0d0&is=6a9f6f50&hm=88edf4e227f957c831800fcddf45be7691374ead233620f41e89f25d8d5ea436&) ᝰ.ᐟ
 
-<!--
-**ita-yuu/ita-yuu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+```—⟢ . Basic Dni , 14- , radqueers```
+
+‧˚꒰🐾꒱༘⋆  ㅤ𖹭ㅤ ![Image Alt Text](https://cdn.discordapp.com/attachments/1405615497583661119/1546704766447386694/nukoPeekWave.gif?ex=6aa0c090&is=6a9f6f10&hm=fd35edf0a0247f622eae47dffcc13db8bc8098a5c937b865a15ed9a0c252a78e&)   ㅤ𖹭 ㅤ⸝⸝ ₊˚⊹ 
+
+# ‿‿‿‿‿‿‿‿‿‿‿‿
+
+┊         ㅤㅤ ┊   ㅤ   ㅤ ┊ ㅤ┊   ㅤ┊  ㅤ ㅤ┊ㅤㅤㅤㅤㅤㅤㅤ┊     ㅤㅤ    ┊     ㅤ ㅤ ┊ㅤ  ┊   ㅤ★ ⋆｡˚  .  ⋆ ㅤㅤㅤㅤㅤㅤㅤ ┊ ㅤ  ㅤ┊ ㅤ  ㅤ ┊ㅤ     ⋆ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┊    ㅤ  ㅤ┊       ㅤ  ㅤ★⋆ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┊ ◦ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★⋆ㅤㅤ┊.  ˚          ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ˚★
+
+## ︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵
+![Image Alt Text](https://cdn.discordapp.com/attachments/1413590341487034464/1546703323996880937/19922.png?ex=6aa0bf38&is=6a9f6db8&hm=98c573129ab993d7774c7edd8759c286f65237f86670d8d08a458b058f6167a4&)
+
+## ────────୨ৎ─────────
+
+
+
+
