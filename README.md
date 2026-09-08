@@ -8,7 +8,7 @@
 
 # ‿‿‿‿‿‿‿‿‿‿‿‿
 
-
+ᯓᡣ𐭩ㅤ ![Image Alt Text](https://cdn.discordapp.com/attachments/1405615497583661119/1546704767693234286/nukoFallDomino.gif?ex=6aa0c091&is=6a9f6f11&hm=57bffc474a20192ff354f54e1d495f825cd8fba5332d46acbf66ce69570bb52a&)
 
 ## ︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵
 ![Image Alt Text](https://cdn.discordapp.com/attachments/1413590341487034464/1546703323996880937/19922.png?ex=6aa0bf38&is=6a9f6db8&hm=98c573129ab993d7774c7edd8759c286f65237f86670d8d08a458b058f6167a4&)
