@@ -6,3 +6,6 @@
 
 
 
+
+
+$${\color{#36BCF7FF}\text{here is my text! }}$$
