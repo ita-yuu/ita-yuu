@@ -5,7 +5,4 @@
 
 
 
-
-
-
-$${\color{#36BCF7FF}\text{here is my text! }}$$
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ita-yuu&color=ff69b4&style=plastic)
