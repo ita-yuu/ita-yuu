@@ -3,7 +3,7 @@
 ```—⟢ . Basic Dni , 14- , radqueers```
 
 
-<img width="540" height="304" alt="9b985780e9bfc401da318073e02865f8" src="https://github.com/user-attachments/assets/6a893568-7b64-473f-af8a-99d7351d7840" />
+<img width="300" height="300" alt="image02_1-1" src="https://github.com/user-attachments/assets/8bbd7963-747b-4289-8077-986b2ea50252" />
 
 
 
